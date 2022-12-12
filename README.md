@@ -1,1 +1,1 @@
-# rsschool-cv
+https://P-Vitali-P.github.io/rsschool-cv/cv
